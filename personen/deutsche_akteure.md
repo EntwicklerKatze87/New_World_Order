@@ -7,21 +7,28 @@ Die genannten Personen sind Teil des deutschen Netzwerks, das sich um die New Wo
 ## Tom Rohrböck
 
 ### Hintergrund
-- **Bekannheit**: YouTuber und Verschwörungstheoretiker
-- **Fokus**: NWO-Verschwörungen, globale Eliten, Geheimgesellschaften
-- **Plattformen**: YouTube, soziale Medien
-- **Themen**: Klassische NWO-Narrative, Illuminati, Freimaurer
+- **Alter**: 53 Jahre (Stand 2021)
+- **Bekanntheit**: "Rechtes Phantom", "Schattenmann der AfD"
+- **Rolle**: Politikberater, Unternehmer, "Strippenzieher"
+- **Selbstbeschreibung**: "Inhaltlich kein AfDler", "Söldner im Auftrag reicher Auftraggeber"
 
-### Inhalte und Positionen
-- Verbreitung klassischer NWO-Verschwörungstheorien
-- Kritik an globalen Institutionen (UN, EU, WEF)
-- Verbindung von aktuellen Ereignissen mit NWO-Narrativen
-- oft in Verbindung mit anderen Verschwörungstheorien (QAnon, etc.)
+### AfD-Verbindungen und NWO-Rolle
+- **Netzwerk**: Ca. 40 Bundestagsabgeordnete und Funktionäre
+- **Schlüsselpersonen**: Alice Weidel, Corinna Miazga, Damian Lohr
+- **Methodik**: Luxushotel-Treffen, finanzielle Angebote, strategische Beratung
+- **Finanzielle Strukturen**: Undurchsichtige Firmennetzwerke mit 30+ Plattformen
 
-### Bedeutung im NWO-Kontext
-- **Gatekeeper-Funktion**: Vermittlung von NWO-Ideen an deutschsprachiges Publikum
-- **Radikalisierungspotenz**: Bridge zu extremeren Verschwörungserzählungen
-- **Community-Bildung**: Aufbau von Anhängerschaft um NWO-Themen
+### Internationale Verbindungen
+- **US-Kontakte**: Verbindungen zu konservativen Kreisen und Trump-Netzwerken
+- **Russland-Nähe**: Nähe zu autoritären Regimen und Geschäftskreisen
+- **Österreich-Brücke**: Internationale Treffen und Kooperationen
+- **Autokratie-Unterstützung**: Finanzielle und strategische Unterstützung autoritärer Tendenzen
+
+### NWO-Bezüge
+- **Deep State-Narrativ**: Verbreitung von Verschwörungstheorien gegen demokratische Institutionen
+- **Internationale Koordination**: Zusammenarbeit mit globalen autokratischen Strömungen
+- **Finanzierung**: Internationale Geldströme zur Unterstützung von NWO-Narrativen
+- **Systematische Unterwanderung**: Gezielte Beeinflussung politischer Prozesse
 
 ## Naomi Seibt
 
@@ -113,6 +120,25 @@ Die genannten Personen sind Teil des deutschen Netzwerks, das sich um die New Wo
 - **ZDF frontal**: Detaillierte Berichterstattung über ihren Fall
 - **Schweinetreff-Verbindung**: Verbindung zur Cybermobbing-Gruppe
 - **Opferrolle**: Verkörperung der Auswirkungen von NWO-Terror
+
+## Martha Root (Historische Figur)
+
+### Hintergrund
+- **Lebensdaten**: 1872-1939
+- **Bekanntheit**: Bahai-Missionarin, Journalistin
+- **Aktivität**: Weltweite Verbreitung des Bahai-Glaubens
+- **Status**: Historische Figur, posthum instrumentalisiert
+
+### NWO-Bezug (instrumentalisiert)
+- **Historische Realität**: Spirituelle Missionarin, keine politische Verschwörung
+- **Russische Propaganda**: Wird als "Beweis" für globale Verschwörung missbraucht
+- **Bahai "World Order"**: Spirituelle Konzepte als NWO-Theorie umgedeutet
+- **Posthume Instrumentalisierung**: Ihre Arbeit für moderne Verschwörungen genutzt
+
+### Kritische Einordnung
+- **Zeitliche Diskrepanz**: Starb 1939, lange vor modernen NWO-Theorien
+- **Motivationsunterschied**: Spirituelle vs. politische Ziele
+- **Propagandistische Nutzung**: Symbol für russische Desinformationskampagnen
 
 ## Verbindungen und Netzwerke
 
